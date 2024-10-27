@@ -29,7 +29,7 @@
 ---
 
 ### 🔗 **How to Reach Me**  
-📫 Email: **your-email@example.com**  
+📫 Email: **aahrvin@gmail.com**  
 🌐 Website: [Your Personal Portfolio](https://your-portfolio-site.com)  
 💼 LinkedIn: [Mark Arvin C. Lepago](https://linkedin.com/in/mark-lepago)  
 
